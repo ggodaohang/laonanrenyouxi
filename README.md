@@ -1,7 +1,7 @@
 <h2>老男人游戏网官网，免费单机主机游戏下载|网站入口</h2>
 <p>老男人游戏网是一个专注于提供高质量游戏资源下载的非商业性网站，主要面向掌机和家用机游戏爱好者。该网站以其丰富的游戏资源库、便捷的下载服务以及无广告的用户体验而受到玩家的喜爱。网站内拥有超过10TB的游戏资源，覆盖了从经典到现代的多个游戏平台，包括PSV、PSP、3DS、NDS、GBA、NG-WAG、N-Gage、WS/WSC、GB/GC、NGPC、Lynx、WIIU、PS3、XBOX360、2PS、NGC、DC、SS、N64、3DO、SFC、街机等掌机和家用机游戏资源。</p>
-<p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/4504.html " target="_blank"><strong>TheFuture搜书最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://oldmantvg.wwwnav.com/ " target="_blank"><strong>老男人游戏网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p>老男人游戏网的特色功能包括：</p>
 <ol>
